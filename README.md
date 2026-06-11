@@ -6,6 +6,7 @@ meu nome é Elena <3
 - _gosto de anime_
 - _gosto de musica_ 🎵🎼
 - _charlie bronw jr, anavitoria_ 🎵
+- _amo ler livros de poesia!_
 - _I LOVE MY HERO ACADEMIA_ 💥
 -  entre em contato comigo!! oliveira.elena@escola.pr.gov.br
 - ## Katsuki Bakugo my man
