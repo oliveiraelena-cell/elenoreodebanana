@@ -1,7 +1,7 @@
 # elenoreodebanana
 meu nome é Elena <3
 😿 🫀
-_sou estudante_🍥
+_sou estudante_ 🍥
 _gosto de gatos_ 😿🐈
 _gosto de anime_
 _gosto de musica_ 🎵🎼
