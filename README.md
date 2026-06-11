@@ -7,8 +7,8 @@ meu nome é Elena <3
 - _gosto de musica_ 🎵🎼
 - _charlie bronw jr, anavitoria_ 🎵
 - _I LOVE MY HERO ACADEMIA_ 💥
+-  entre em contato comigo!! oliveira.elena@escola.pr.gov.br
 - ## Katsuki Bakugo my man
-- entre em contato comigo oliveira.elena@escola.pr.gov.br
 ![](https://media1.tenor.com/m/JFyAGOPkUykAAAAC/mha-bnha.gif)
 ![](https://media1.tenor.com/m/5FkjL69_wvQAAAAd/mha-my-hero-academia.gif)
 ![](https://media1.tenor.com/m/5LRL3XCiZTIAAAAC/tenya-tenya-iida.gif)
